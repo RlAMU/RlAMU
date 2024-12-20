@@ -10,7 +10,7 @@
 
 
 
-　　　　　　　　　　୨𓎟𓎟𓎟　![image](https://github.com/user-attachments/assets/6036cde1-18c7-486f-a250-98d710bf8c5a) 𓎟𓎟𓎟୧
+　　　　　　　　　　
 
 　　　　　　　                                                                        Please int :D,, Refer by current name pls!
                                                                                   ![image](https://i.ibb.co/pWRrqfm/IMG-7963.gif)
