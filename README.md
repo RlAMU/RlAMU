@@ -6,7 +6,7 @@
 ˚ʚ W2I, usually offtab playing games .^.  ɞ˚
 
 
-![image](https://github.com/user-attachments/assets/e1fffd34-c22b-4a21-9e59-2ca3558c21cf)
+![image]([https://github.com/user-attachments/assets/e1fffd34-c22b-4a21-9e59-2ca3558c21cf](https://cdn.discordapp.com/attachments/1223825064047153233/1319796583818334248/IMG_6588.jpg?ex=676743da&is=6765f25a&hm=cfde1b5a6c0839c01d205c1892773221f89daff6e94e8f19b658a01b7dcf928c&))
 
 
 
