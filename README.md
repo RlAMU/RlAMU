@@ -10,10 +10,11 @@ Robin　or　Till　　𓎟𓎟 　She , They !
 <p align="center">
 <img width="50" height="50" src="https://pixels.crd.co/assets/images/gallery12/9efc8b3c.gif?v=99d3974e">
 　</p>　　　
+ <p align="center">
 ˚ʚ W2I, usually offtab playing games .^.  ɞ˚
 
 ˚ʚ Pls read my rentry n pronouns page :3  ɞ˚
-
+　</p>　
 
 ![image](https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg)
 
