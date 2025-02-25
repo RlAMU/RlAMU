@@ -14,7 +14,6 @@ Robin　or　Till　　𓎟𓎟 　She , They !<img width="50" height="30" src="
 <p align="center">
 Please int :D,, Refer by current name pls! 
 <p align="center">
-<img width="80" height="80" src="https://i.ibb.co/pWRrqfm/IMG-7963.gif">
 </p>
 
 <p align="center">
