@@ -11,7 +11,9 @@ Robin　or　Till　　𓎟𓎟 　She , They ! <img width="50" height="30" src=
 <p align="center">
 ˚ʚ Pls read my rentry n pronouns page :3  ɞ˚
 <p align="center">
-Please int :D,, Refer by current name pls!
+Please int :D,, Refer by current name pls! <p align="center">
+<img width="80" height="80" src="https://i.ibb.co/pWRrqfm/IMG-7963.gif">
+</p>
 
 <p align="center">
  <img width="600" height="1000" src="https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg">
