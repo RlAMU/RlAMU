@@ -5,7 +5,7 @@
 
 
 <p align="center">
-Robin　or　Till　　𓎟𓎟 　She , They ![image](https://i.ibb.co/svZRJLh/IMG-5581.gif)
+Robin　or　Till　　𓎟𓎟 　She , They !
 </p>
 <p align="center">
 <img width="50" height="50" src="https://gifs.crd.co/assets/images/gallery25/53a08afa.gif?v=d417d32b">
