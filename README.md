@@ -20,10 +20,9 @@ Please int :D,, Refer by current name pls!
  <img width="600" height="1000" src="https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg">
 </p>　
 
-<p align="left">
- <img width="300" height="200" src="[https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg](https://64.media.tumblr.com/87d72432469449dc4d590144c9006762/370bcea537999a56-db/s640x960/4bf4f107e27600e10beead013523a2b4e6cb1bd5.pnj)">
 
 <p align="right">
+ dfdfdfdf
  <img width="250" height="350" src="https://64.media.tumblr.com/305bda58d6a29dd5e52fbe2a06001d27/67fe4dab8eb71096-3d/s250x400/2b74eb9ebf06d1ae5054702f67af7eac12371f13.pnj"> 
 </p> 
 
