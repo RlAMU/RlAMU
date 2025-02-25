@@ -5,7 +5,7 @@
 
 
 <p align="center">
-Robin　or　Till　　𓎟𓎟 　She , They ! <img width="50" height="50" src="https://i.imgur.com/i2nmTKz.gif">
+Robin　or　Till　　𓎟𓎟 　She , They ! <img width="30" height="30" src="https://i.imgur.com/i2nmTKz.gif">
 </p>
 
 <p align="center">
@@ -21,12 +21,12 @@ Robin　or　Till　　𓎟𓎟 　She , They ! <img width="50" height="50" src=
 </p>　
 
 <p align="center">
- <img width="600" height="1000" src="https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg">
-</p>　
-
-<p align="center">
 Please int :D,, Refer by current name pls!
 </p>
+
+<p align="center">
+ <img width="600" height="1000" src="https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg">
+</p>　
 
 <p align="center">
 <img width="80" height="80" src="https://i.ibb.co/pWRrqfm/IMG-7963.gif">
