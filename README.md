@@ -5,7 +5,7 @@
 
 
 <p align="center">
-</h1>Robin　or　Till　　𓎟𓎟 　She , They !<h1> <img width="50" height="30" src="https://i.imgur.com/i2nmTKz.gif">
+Robin　or　Till　　𓎟𓎟 　She , They !<img width="50" height="30" src="https://i.imgur.com/i2nmTKz.gif">
  
 <p align="center">
 ˚ʚ W2I, usually offtab playing games .^.  ɞ˚
