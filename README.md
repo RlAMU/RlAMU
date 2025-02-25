@@ -9,7 +9,7 @@ Robin　or　Till　　𓎟𓎟 　She , They ! <img width="50" height="30" src=
 </p>
 
 <p align="center">
-<img width="50" height="50" src="https://pixels.crd.co/assets/images/gallery12/9efc8b3c.gif?v=99d3974e">
+<img width="80" height="30" src="https://cinni.net/images/web/blinkies/dolphins2.gif">
 </p>　　
 
 <p align="center">
