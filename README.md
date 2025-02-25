@@ -7,15 +7,12 @@
 <p align="center">
 Robin　or　Till　　𓎟𓎟 　She , They ! <img width="50" height="30" src="https://i.imgur.com/i2nmTKz.gif"> 
 </p>　
-
 <p align="center">
 ˚ʚ W2I, usually offtab playing games .^.  ɞ˚
 </p>　
-
 <p align="center">
 ˚ʚ Pls read my rentry n pronouns page :3  ɞ˚
 </p>　
-
 <p align="center">
 Please int :D,, Refer by current name pls!
 </p>
