@@ -8,7 +8,7 @@
 Robin　or　Till　　𓎟𓎟 　She , They !
 </p>
 <p align="center">
-<img width="50" height="50" src="https://pixels.crd.co/assets/images/gallery12/9efc8b3c.gif?v=99d3974e">
+<img width="600" height="600" src="https://pixels.crd.co/assets/images/gallery12/9efc8b3c.gif?v=99d3974e">
 </p>　　　
  <p align="center">
 ˚ʚ W2I, usually offtab playing games .^.  ɞ˚
