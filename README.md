@@ -21,7 +21,7 @@ Robin　or　Till　　𓎟𓎟 　She , They !
 </p>　
 
 <p align="center">
- <img width="900" height="1200" src="https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg">
+ <img width="600" height="1000" src="https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg">
 </p>　
 
 <p align="center">
