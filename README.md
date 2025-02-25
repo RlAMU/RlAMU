@@ -5,12 +5,8 @@
 
 
 <p align="center">
-Robin　or　Till　　𓎟𓎟 　She , They ! <img width="50" height="30" src="https://i.imgur.com/i2nmTKz.gif"> <img width="50" height="30" src="https://i.imgur.com/i2nmTKz.gif">
-</p>
-
-<p align="center">
-<img width="140" height="20" src="https://cinni.net/images/web/blinkies/dolphins2.gif">
-</p>　　
+Robin　or　Till　　𓎟𓎟 　She , They ! <img width="50" height="30" src="https://i.imgur.com/i2nmTKz.gif"> 
+</p>　
 
 <p align="center">
 ˚ʚ W2I, usually offtab playing games .^.  ɞ˚
