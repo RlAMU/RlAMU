@@ -21,12 +21,6 @@ Please int :D,, Refer by current name pls!
 </p>　
 
 
-<p align="middle"  style="vertical-align: text-middle">
-fghghjkl
- <img width="250" height="350" src="https://64.media.tumblr.com/305bda58d6a29dd5e52fbe2a06001d27/67fe4dab8eb71096-3d/s250x400/2b74eb9ebf06d1ae5054702f67af7eac12371f13.pnj"> 
-</p> 
-
-
 <p align="center">
 <img width="1200" height="60" src="https://64.media.tumblr.com/d81ab5dd0c443819d82ff37d8f5c50e5/6858cce81a99a1b7-bf/s1280x1920/90edf4045684eb40b12d36fc115de84719be1261.gifv">
 </p>
