@@ -3,7 +3,7 @@
 <img width="1200" height="60" src="https://64.media.tumblr.com/d81ab5dd0c443819d82ff37d8f5c50e5/6858cce81a99a1b7-bf/s1280x1920/90edf4045684eb40b12d36fc115de84719be1261.gif">
 </p>
 
-<h2><p align="center">Robin　or　Till　⸜(｡˃ ᵕ ˂ )⸝♡ 　She . They !<img width="50" height="30" src="https://i.imgur.com/i2nmTKz.gif"></h2>
+<h2><p align="center">Robin　or　Till　⸜(｡˃ ᵕ ˂ )⸝♡ 　She . They ! <img width="60" height="60" src="https://64.media.tumblr.com/33cf60cef2c488bc5ad3516661e06cbe/54c55c95c288a1f6-ba/s100x200/8340857febb1f9fcfeaa1c25fdcc6af14730b54c.pnj"></h2>
 </p>
 
 <p align="center">
