@@ -11,7 +11,7 @@
 <p align="center">
 ˚ʚ Pls read my rentry n pronouns page :3  ɞ˚
 <p align="center">
-Please int :D,, Refer by current name pls! 
+FANDOMS INT!!! :D,, Refer by current name pls! 
 <p align="center">
 
 </p>
