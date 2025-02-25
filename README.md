@@ -8,8 +8,10 @@ Robin　or　Till　　𓎟𓎟 　She , They ![image](https://i.ibb.co/svZRJLh/
 
 ˚ʚ Pls read my rentry n pronouns page :3  ɞ˚
 
-
+<p align="center">
 ![image](https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg)
+</p>
+
 
 
 
