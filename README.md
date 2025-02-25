@@ -23,7 +23,7 @@ Please int :D,, Refer by current name pls!
 </p>
 
 <p align="center">
-<img width="140" height="20" src="https://biscuit.crd.co/assets/images/gallery83/9aceab0c.gif?v=532faf5f">
+<img width="140" height="20" src="https://biscuit.crd.co/assets/images/gallery83/9aceab0c.gif?v=532faf5f"><img width="140" height="20" src="https://biscuit.crd.co/assets/images/gallery83/9aceab0c.gif?v=532faf5f">
 </p>
 
 <p align="center">
