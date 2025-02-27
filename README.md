@@ -1,4 +1,6 @@
 
+
+
 <p align="center">
 <img width="1200" height="60" src="https://64.media.tumblr.com/d81ab5dd0c443819d82ff37d8f5c50e5/6858cce81a99a1b7-bf/s1280x1920/90edf4045684eb40b12d36fc115de84719be1261.gif">
 </p>
@@ -11,9 +13,10 @@
 <p align="center">
 ˚ʚ Pls read my rentry n pronouns page :3  ɞ˚
 <p align="center">
-FANDOMS INT!!! :D,, Refer by current name pls! 
+FANDOMS INT!!! :D,, Refer by current name pls! >
 <p align="center">
-
+<p align="center">
+ <img width="60" height="60" src="https://64.media.tumblr.com/218b3e951e6dc80cb0ed452f851dca78/a4e588a830dca02a-59/s1280x1920/ef7c9cd8f68b02d217e6af7fac1589a897551936.pnj"
 </p>
 
 <p align="center">
