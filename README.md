@@ -11,6 +11,9 @@
 <p align="center">
 ˚ʚ W2I, usually offtab playing games .^.  ɞ˚
 <p align="center">
+ <p align="center">
+˚ʚ Pls mssg me about trading skins!!!  ɞ˚
+<p align="center">
 ˚ʚ Pls read my rentry n pronouns page :3  ɞ˚
 <p align="center">
 FANDOMS INT!!! :D,, Refer by current name pls! >
