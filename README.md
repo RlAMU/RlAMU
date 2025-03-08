@@ -12,7 +12,7 @@
 ˚ʚ W2I, usually offtab playing games .^.  ɞ˚
 <p align="center">
  <p align="center">
-˚ʚ Pls mssg me about trading skins!!!  ɞ˚
+˚ʚ Pls mssg me about trading or if you'd like me to make you a free rentry!!!!  ɞ˚
 <p align="center">
 ˚ʚ Pls read my rentry n pronouns page :3  ɞ˚
 <p align="center">
