@@ -40,6 +40,8 @@ FANDOMS INT!!! :D,, Refer by current name pls! >
 </p>
 
 <p align="center">
+ 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=22an7rp7mrtczxx3nxjhbny6a&cover_image=true&theme=novatorem&show_offline=true&background_color=6e5fb4&interchange=false&bar_color=ce96e9&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=22an7rp7mrtczxx3nxjhbny6a&redirect=true)
+
 </p>
 
