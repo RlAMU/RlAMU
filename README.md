@@ -26,7 +26,7 @@ FANDOMS INT!!! :D,, Refer by current name pls! >
 </p>
 
 <p align="center">
-<img width="600" height="1000" src="https://i.pinimg.com/736x/f9/11/2d/f9112d9638bfb4ba92cece06cb0fb64c.jpg">
+<img width="1400" height="600" src="https://64.media.tumblr.com/3158aa7cff80c508e519f7d1cde9bdf6/49cb244b26bb1c8c-6f/s1280x1920/9730188614e3dc581709fc66f4153e152bba74d7.pnj">
 </p>　
 
 <p align="center">Ty for reading!!! <333
