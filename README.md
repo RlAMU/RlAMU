@@ -14,9 +14,6 @@
 <p align="center">
 ˚ʚ 17- Pls do not dm! s .^.  ɞ˚
 <p align="center">
- <p align="center">
-˚ʚ Pls mssg me about trading or if you'd like me to make you a free rentry!!!!  ɞ˚
-<p align="center">
 ˚ʚ Pls read my rentry n pronouns page :3  ɞ˚
 <p align="center">
 FANDOMS INT!!! :D,, Refer by current name or Riamu! (Yamu for friends only.) >
