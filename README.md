@@ -21,6 +21,9 @@ FANDOMS INT!!! :D,, Refer by current name or Riamu! (Yamu for friends only.) >
 <p align="center">
  I am currently in college! I am often busy, and will be AFK most of the time. Send me a whisper!
 <p align="center">
+ <p align="center">
+ I will always be at the protree! I love my friends, and I've been here for almost a year :,)
+<p align="center">
 <p align="center">
  <img width="60" height="60" src="https://64.media.tumblr.com/218b3e951e6dc80cb0ed452f851dca78/a4e588a830dca02a-59/s1280x1920/ef7c9cd8f68b02d217e6af7fac1589a897551936.pnj"
 </p>
