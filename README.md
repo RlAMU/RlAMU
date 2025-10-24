@@ -5,24 +5,24 @@
 </div>
 
 <p align="center">
-<img width="1200" height="260" src="https://files.catbox.moe/t30mps.png">
+<img width="980" height="260" src="https://files.catbox.moe/t30mps.png">
 </p>
 
-<p align="center"> ${\textsf{\color{#b49ed5}Riamu　or　Nene 　She . They ! ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="60" height="60" src="https://64.media.tumblr.com/4e9478c7c65dc55f565004932b80172b/02ca19d67c8c8946-8c/s540x810/6e9e3a7c05311d03c2e2c4b7010b796ba0ce167d.pnj"></h2>
+<p align="center"> ${\textsf{\color{#eedcf4}Riamu　or　Nene 　She . They ! ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="60" height="60" src="https://64.media.tumblr.com/4e9478c7c65dc55f565004932b80172b/02ca19d67c8c8946-8c/s540x810/6e9e3a7c05311d03c2e2c4b7010b796ba0ce167d.pnj"></h2>
 </p>
 
 <p align="center"> 
- ${\textsf{\color{#e0a3c4}˚ʚ 17- Pls do not dm!   ɞ˚}}$
+ ${\textsf{\color{#f6cee1}˚ʚ 17- Pls do not dm!   ɞ˚}}$
 <p align="center">
-${\textsf{\color{#b49ed5}˚ʚ Pls read my rentry n pronouns page :3  ɞ˚!}}$
+${\textsf{\color{#eedcf4}˚ʚ Pls read my rentry n pronouns page :3  ɞ˚!}}$
 <p align="center">
-${\textsf{\color{#e0a3c4}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Yamu for friends only.)}}$ 
+${\textsf{\color{#f6cee1}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Yamu for friends only.)}}$ 
 <p align="center">
 <p align="center">
- ${\textsf{\color{#b49ed5}I am currently in college! I am often busy, and will be AFK most of the time. Send me a whisper!}}$
+ ${\textsf{\color{#eedcf4}I am currently in college! I am often busy, and will be AFK most of the time. Send me a whisper!}}$
 <p align="center">
  <p align="center">
- ${\textsf{\color{#e0a3c4}I will always be at the protree! I love my friends, and I've been here for almost a year :,)}}$
+ ${\textsf{\color{#f6cee1}I will always be at the protree! I love my friends, and I've been here for almost a year :,)}}$
 <p align="center">
 <p align="center">
  <img width="60" height="60" src="https://64.media.tumblr.com/218b3e951e6dc80cb0ed452f851dca78/a4e588a830dca02a-59/s1280x1920/ef7c9cd8f68b02d217e6af7fac1589a897551936.pnj"
@@ -38,8 +38,7 @@ ${\textsf{\color{#e0a3c4}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Ya
  <p align="center">
 <img width="80" height="80" src="https://i.ibb.co/pWRrqfm/IMG-7963.gif">
  </p>
-<p align="center">
-<img width="1200" height="60" src="https://64.media.tumblr.com/d81ab5dd0c443819d82ff37d8f5c50e5/6858cce81a99a1b7-bf/s1280x1920/90edf4045684eb40b12d36fc115de84719be1261.gifv">
+<p align="center"><img width="980" height="260" src="https://files.catbox.moe/i411xm.png">
 </p>
 
 <div align="center">
