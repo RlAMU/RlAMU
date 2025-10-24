@@ -8,7 +8,7 @@
 <img width="980" height="260" src="https://files.catbox.moe/t30mps.png">
 </p>
 
-<p align="center"> ${\textsf{\color{#eedcf4}Riamu　or　Nene 　She . They ! ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="60" height="60" src="https://64.media.tumblr.com/4e9478c7c65dc55f565004932b80172b/02ca19d67c8c8946-8c/s540x810/6e9e3a7c05311d03c2e2c4b7010b796ba0ce167d.pnj"></h2>
+<p align="center"> ${\textsf{\color{#eedcf4}Riamu　or　Nene 　She . They ! ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="80" height="80" src="https://file.garden/aNn6VC_COBCnNK6N/mikan"></h2>
 </p>
 
 <p align="center"> 
