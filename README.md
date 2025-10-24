@@ -12,7 +12,7 @@
 </p>
 
 <p align="center"> 
- ${\textsf{\color{#f6cee1}˚ʚ 17- Pls do not dm!   ɞ˚}}$
+ ${\textsf{\color{#f6cee1}˚ʚ Under 16 Pls do not whisp!   ɞ˚}}$
 <p align="center">
 ${\textsf{\color{#eedcf4}˚ʚ Pls read my rentry n pronouns page :3  ɞ˚!}}$
 <p align="center">
