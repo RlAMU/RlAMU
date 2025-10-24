@@ -29,10 +29,10 @@ ${\textsf{\color{#f6cee1}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Ya
 </p>
 
 <p align="center">
-<img width="600" height="500" src="https://64.media.tumblr.com/1b595fca14ba9451cc1a0bdc43bac025/49cb244b26bb1c8c-c7/s640x960/f6a61a721729510ed2356cbed36159b3a318421c.pnj">
+<img width="600" height="500" src="https://files.catbox.moe/lc1z8e.png">
 </p>　
 
-<p align="center">Ty for reading!!! <333
+<p align="center"> ${\textsf{\color{#eedcf4}Ty for reading!!! <333}}$
 
 </p>
  <p align="center">
