@@ -8,7 +8,7 @@
 <img width="980" height="260" src="https://files.catbox.moe/t30mps.png">
 </p>
 
-<p align="center"> ${\textsf{\color{#eedcf4}Riamu　or　Nene 　. She . They ! ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="80" height="80" src="https://file.garden/aNn6VC_COBCnNK6N/mikan"></h2>
+<p align="center"> ${\textsf{\color{#eedcf4}Riamu　or　Nene 　. She . They ! 18 yrs ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="80" height="80" src="https://file.garden/aNn6VC_COBCnNK6N/mikan"></h2>
 </p>
 
 <p align="center"> 
