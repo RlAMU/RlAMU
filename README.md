@@ -40,7 +40,7 @@ ${\textsf{\color{#f6cee1}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Ya
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=22an7rp7mrtczxx3nxjhbny6a&cover_image=true&theme=novatorem&show_offline=true&background_color=6e5fb4&interchange=false&bar_color=ce96e9&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=22an7rp7mrtczxx3nxjhbny6a&redirect=true)
 
-[Fav Ships](https://rentry.co/pro-ship) , [Ext info](https://rentry.co/mene) , [Alters](https://rentry.co/falling) , [Agere](https://rentry.co/TINYDOLL) , [yumes](https://rentry.co/hanakokun) , [Proship info](https://proshipresources.carrd.co)
+[Fav Ships](https://rentry.co/pro-ship) , [Ext info](https://rentry.co/mene) , [Alters](https://rentry.co/falling) , [Agere](https://rentry.co/TINYDOLL) , [yumes](https://rentry.co/hanakokun) , [Proship info](https://proshipresources.carrd.co) , [Ponies](https://rentry.co/jinshis)
 <p align="center"> ${\textsf{\color{#eedcf4}Ty for reading!!! <333}}$
 
 </p>
