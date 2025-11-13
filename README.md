@@ -27,6 +27,9 @@ ${\textsf{\color{#f6cee1}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Ya
  <p align="center">
  ${\textsf{\color{#eedcf4}I will always be at the protree! I love my friends, and I've been here for almost a year :,)}}$
 <p align="center">
+ <p align="center">
+ ${\textsf{\color{#f6cee1}I am a NO DOUBLES irl/kin as well as a nonsharing yume. Pls respect this if you choose to sit with me.}}$
+<p align="center">
 <p align="center">
  <img width="60" height="60" src="https://64.media.tumblr.com/218b3e951e6dc80cb0ed452f851dca78/a4e588a830dca02a-59/s1280x1920/ef7c9cd8f68b02d217e6af7fac1589a897551936.pnj"
 </p>
