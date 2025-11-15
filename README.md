@@ -25,7 +25,7 @@ ${\textsf{\color{#f6cee1}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Ya
  ${\textsf{\color{#f6cee1}I am currently in college! I am often busy, and will be AFK most of the time. Send me a whisper!}}$
 <p align="center">
  <p align="center">
- ${\textsf{\color{#eedcf4}I will always be at the protree! I love my friends, and I've been here for almost a year :,)}}$
+ ${\textsf{\color{#eedcf4}I will always be at the protree! I love my friends, and I've been here for a year :,)}}$
 <p align="center">
  <p align="center">
  ${\textsf{\color{#f6cee1}I am a NO DOUBLES irl/kin as well as a nonsharing yume. Pls respect this if you choose to sit with me.}}$
