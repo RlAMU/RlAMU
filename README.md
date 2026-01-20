@@ -19,7 +19,7 @@ ${\textsf{\color{#eedcf4}˚ʚ Pls read my rentry n pronouns page :3  ɞ˚!}}$
 ${\textsf{\color{#f6cee1}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Yamu for friends only.)}}$ 
 <p align="center">
  <p align="center">
- ${\textsf{\color{#eedcf4}Pls do not whisp me abt support benefits :( }}$
+ ${\textsf{\color{#eedcf4}The number 1 league of legends fan EVER!! talk to me abt it.. }}$
 <p align="center">
 <p align="center">
  ${\textsf{\color{#f6cee1}I am currently in college! I am often busy, and will be AFK most of the time. Send me a whisper!}}$
