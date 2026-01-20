@@ -12,7 +12,7 @@
 </p>
 
 <p align="center"> 
- ${\textsf{\color{#f6cee1}˚ʚ If you're younger than the black parade music video, pls dont whisp me!   ɞ˚}}$
+ ${\textsf{\color{#f6cee1}˚ʚ If you're younger than League of Legends, pls dont whisp me!   ɞ˚}}$
 <p align="center">
 ${\textsf{\color{#eedcf4}˚ʚ Pls read my rentry n pronouns page :3  ɞ˚!}}$
 <p align="center">
