@@ -1,41 +1,41 @@
 <div align="center">
  
-![](https://komarev.com/ghpvc/?username=RlAMU&color=b49cdb&base=1500&label=YAMU'S+FANS)
+![](https://komarev.com/ghpvc/?username=RlAMU&color=000000&base=1500&label=YAMU'S+FANS)
 
 </div>
 
 <p align="center">
-<img width="980" height="260" src="https://64.media.tumblr.com/687c87d52c3587d6eb1c5123a34f92e4/ec4e0e3064314d61-e8/s2048x3072/7f4fe56860c5bf7977c1b760facdb3a47d091527.pnj">
+<img width="980" height="260" src="https://64.media.tumblr.com/524d1b96add71d3d1543c24d01bd545c/804a182a7ca8e6a2-89/s2048x3072/cdb3a31ddefa0bb3761c76a92a13ce215105d760.pnj">
 </p>
 
-<p align="center"> ${\textsf{\color{#eedcf4}Riamu　or　Mao 　 She . They ! 19 yrs ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="80" height="80" src="https://file.garden/aNn6VC_COBCnNK6N/mikan"></h2>
+<p align="center"> ${\textsf{\color{#ffffff}Riamu　or　Mao 　 She . They ! 19 yrs ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="80" height="80" src="https://file.garden/aNn6VC_COBCnNK6N/image_2026-04-14_175124854-removebg-preview.png"></h2>
 </p>
 
 <p align="center"> 
-${\textsf{\color{#c4d9f1}˚ʚ If you're younger than League of Legends, pls dont whisp me!   ɞ˚}}$
+${\textsf{\color{#ffffff}˚ʚ If you're younger than League of Legends, pls dont whisp me!   ɞ˚}}$
 <p align="center">
-${\textsf{\color{#eedcf4}˚ʚ Pls read my rentry n pronouns page :3  ɞ˚!}}$
+${\textsf{\color{#ffffff}˚ʚ Pls read my rentry n pronouns page :3  ɞ˚!}}$
 <p align="center">
-${\textsf{\color{#c4d9f1}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Yamu for friends only.)}}$ 
-<p align="center">
- <p align="center">
- ${\textsf{\color{#eedcf4}The number 1 league of legends fan EVER!! talk to me abt it.. }}$
-<p align="center">
-<p align="center">
- ${\textsf{\color{#c4d9f1}I am currently in college! I am often busy, and will be AFK most of the time. Send me a whisper!}}$
+${\textsf{\color{#ffffff}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Yamu for friends only.)}}$ 
 <p align="center">
  <p align="center">
- ${\textsf{\color{#eedcf4}I will always be at the protree! I love my friends, and I've been here for a year :,)}}$
+ ${\textsf{\color{#ffffff}The number 1 league of legends fan EVER!! talk to me abt it.. }}$
+<p align="center">
+<p align="center">
+ ${\textsf{\color{#ffffff}I am currently in college! I am often busy, and will be AFK most of the time. Send me a whisper!}}$
 <p align="center">
  <p align="center">
- ${\textsf{\color{#c4d9f1}I am a NO DOUBLES irl/kin as well as a nonsharing yume. Pls respect this if you choose to sit with me.}}$
+ ${\textsf{\color{#ffffff}I will always be at the protree! I love my friends, and I've been here for a year :,)}}$
+<p align="center">
+ <p align="center">
+ ${\textsf{\color{#ffffff}I am a NO DOUBLES irl/kin as well as a nonsharing yume. Pls respect this if you choose to sit with me.}}$
 <p align="center">
 <p align="center">
- <img width="60" height="60" src="https://64.media.tumblr.com/218b3e951e6dc80cb0ed452f851dca78/a4e588a830dca02a-59/s1280x1920/ef7c9cd8f68b02d217e6af7fac1589a897551936.pnj"
+ <img width="60" height="60" src="https://file.garden/aNn6VC_COBCnNK6N/image_2026-04-14_175302026-removebg-preview.png"
 </p>
 
 <p align="center">
-<img width="600" height="500" src="https://files.catbox.moe/8tk0bg.gif">
+<img width="500" height="500" src="https://file.garden/aNn6VC_COBCnNK6N/sd%EC%BB%B4%EC%85%98.png">
 </p>　
 
 
@@ -43,15 +43,15 @@ ${\textsf{\color{#c4d9f1}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Ya
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=22an7rp7mrtczxx3nxjhbny6a&cover_image=true&theme=novatorem&show_offline=true&background_color=6e5fb4&interchange=false&bar_color=ce96e9&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=22an7rp7mrtczxx3nxjhbny6a&redirect=true)
 
-[Fav Ships](https://rentry.co/pro-ship) , [Ext info](https://rentry.co/mene) , [Alters](https://rentry.co/falling) , [Agere](https://rentry.co/TINYDOLL) , [yumes](https://rentry.co/hanakokun) , [Proship info](https://proshipresources.carrd.co) , [Ponies](https://rentry.co/jinshis) , [heehe](https://www.youtube.com/watch?v=z88WWrnROEs&list=RDz88WWrnROEs&start_radio=1)
-<p align="center"> ${\textsf{\color{#eedcf4}Ty for reading!!! <333}}$
+[Fav Ships](https://rentry.co/pro-ship) , [Agere](https://rentry.co/TINYDOLL) , [Proship info](https://proshipresources.carrd.co) , [Ponies](https://rentry.co/jinshis) , [heehe](https://www.youtube.com/watch?v=z88WWrnROEs&list=RDz88WWrnROEs&start_radio=1)
+<p align="center"> ${\textsf{\color{#ffffff}Ty for reading!!! <333}}$
 
 </p>
 <p align="center">
 <img width="80" height="80" src="https://i.ibb.co/pWRrqfm/IMG-7963.gif">
 </p>
 </div>
-<p align="center"><img width="980" height="260" src="https://64.media.tumblr.com/83836b795da8afeb5b3da27c8cc6f7fa/ec4e0e3064314d61-c4/s2048x3072/3e44f18e80b0bc67242eff5e46907f573baf78c7.pnj">
+<p align="center"><img width="980" height="260" src="https://64.media.tumblr.com/16addfa05d4eb55bc220480c49018d9b/804a182a7ca8e6a2-35/s2048x3072/710b670fd4041c5ad2b3f938b2e5e7508c8c3a84.pnj">
 </p>
 
 
