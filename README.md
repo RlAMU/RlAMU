@@ -5,7 +5,7 @@
 </div>
 
 <p align="center">
-<img width="980" height="260" src="https://64.media.tumblr.com/524d1b96add71d3d1543c24d01bd545c/804a182a7ca8e6a2-89/s2048x3072/cdb3a31ddefa0bb3761c76a92a13ce215105d760.pnj">
+<img width="680" height="160" src="https://64.media.tumblr.com/524d1b96add71d3d1543c24d01bd545c/804a182a7ca8e6a2-89/s2048x3072/cdb3a31ddefa0bb3761c76a92a13ce215105d760.pnj">
 </p>
 
 <p align="center"> ${\textsf{\color{#ffffff}Riamu　or　Yuki 　 She . They ! 19 yrs ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="80" height="80" src="https://file.garden/aNn6VC_COBCnNK6N/image_2026-04-14_175124854-removebg-preview.png"></h2>
@@ -51,7 +51,8 @@ ${\textsf{\color{#ffffff}FANDOMS INT!!! :D,, Refer by current name or Riamu! (Ya
 <img width="80" height="80" src="https://i.ibb.co/pWRrqfm/IMG-7963.gif">
 </p>
 </div>
-<p align="center"><img width="980" height="260" src="https://64.media.tumblr.com/16addfa05d4eb55bc220480c49018d9b/804a182a7ca8e6a2-35/s2048x3072/710b670fd4041c5ad2b3f938b2e5e7508c8c3a84.pnj">
+<p align="center">
+<img width="680" height="160" src="https://64.media.tumblr.com/16addfa05d4eb55bc220480c49018d9b/804a182a7ca8e6a2-35/s2048x3072/710b670fd4041c5ad2b3f938b2e5e7508c8c3a84.pnj">
 </p>
 
 
