@@ -8,7 +8,7 @@
 <img width="980" height="260" src="https://64.media.tumblr.com/524d1b96add71d3d1543c24d01bd545c/804a182a7ca8e6a2-89/s2048x3072/cdb3a31ddefa0bb3761c76a92a13ce215105d760.pnj">
 </p>
 
-<p align="center"> ${\textsf{\color{#ffffff}Riamu　or　Mao 　 She . They ! 19 yrs ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="80" height="80" src="https://file.garden/aNn6VC_COBCnNK6N/image_2026-04-14_175124854-removebg-preview.png"></h2>
+<p align="center"> ${\textsf{\color{#ffffff}Riamu　or　Yuki 　 She . They ! 19 yrs ⸜(｡˃ ᵕ ˂ )⸝♡ }}$ <img width="80" height="80" src="https://file.garden/aNn6VC_COBCnNK6N/image_2026-04-14_175124854-removebg-preview.png"></h2>
 </p>
 
 <p align="center"> 
